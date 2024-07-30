@@ -7,3 +7,4 @@
 - ⚡ Fun fact: ...
 
 ![](https://media1.tenor.com/m/YGV1m0f5oOAAAAAC/homer-simpson-hide-in-shrubs.gif)
+![](https://media1.tenor.com/m/DhFhmJBXYjsAAAAd/hollow-knight-meme.gif)
